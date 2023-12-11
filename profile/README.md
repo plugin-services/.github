@@ -9,7 +9,7 @@
 Join the [Discord server](https://discord.gg/MPX9nzZCfn)
 
 ## Step 2
-Go to the `🚀-𝗴𝗲𝘁-𝘀𝘁𝗮𝗿𝘁𝗲𝗱` channel
+Navigate to the `🚀-𝗴𝗲𝘁-𝘀𝘁𝗮𝗿𝘁𝗲𝗱` channel
 
 ## Step 3
 Click on the drop down menu and select a service
