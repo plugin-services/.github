@@ -6,7 +6,7 @@
 </div>
 
 ## Step 1
-Join the [Discord server](https://discord.gg/MPX9nzZCfn)
+Join the [Discord server](https://services.nextfight.net)
 
 ## Step 2
 Navigate to the `🚀-𝗴𝗲𝘁-𝘀𝘁𝗮𝗿𝘁𝗲𝗱` channel
